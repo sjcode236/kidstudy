@@ -72,4 +72,19 @@ https://www.biggerpockets.com/renewsblog/2013/02/22/buying-rental-property/
 
 
     
+ kach/miscbizNotes.md      
+ 
+
+****a
+franchises     
+johnnyrockets      
+el pollo loco    
+dennys  
+chick-fil-a 
+
+
+starbucks & chipotle 
+
+
+
 
