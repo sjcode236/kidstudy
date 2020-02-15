@@ -1,7 +1,7 @@
 
 
 
-isabella school 
+isabella school    
 Self developing academy 
 602 675 0125    
 16635 N 51st Avenue , 
